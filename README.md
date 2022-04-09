@@ -14,3 +14,7 @@ https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
 
 
 ANDRE VE3WZW.NET
+
+www.linktr.ee/VE3WZW
+
+.
