@@ -20,8 +20,10 @@ VE3WZW Social Links:   www.linktr.ee/VE3WZW
 VE3WZW on QRZ:  https://www.ve3wzw.net/p/ve3wzw-on-qrz.html
 
 
-www.VE3SP.com
-www.VA3AGV.com
-www.VE3WZW.net
-10+
+
+www.VE3SP.com </br>
+www.VA3AGV.com </br>
+www.VE3WZW.net </br>
+www.VE3WZW.com </br>
+10+ </br>
 
