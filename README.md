@@ -15,6 +15,9 @@ https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
 
 ANDRE VE3WZW.NET
 
-Social Links:   www.linktr.ee/VE3WZW
+VE3WZW Social Links:   www.linktr.ee/VE3WZW
 
-VE3SP on QRZ:  https://www.ve3sp.com/p/ve3sp-on-qrz.html
+VE3WZW on QRZ:  https://www.ve3wzw.net/p/ve3wzw-on-qrz.html
+
+.
+
