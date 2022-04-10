@@ -1,5 +1,5 @@
 # ABOUT-ME
-ABOUT ME
+ABOUT ME 🌱
 
 Keep smiling, because life is a beautiful thing and there's so much to smile about.
 
@@ -13,7 +13,7 @@ ACCOMPLISHMENTS ::   (PAID)
 https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
 
 
-ANDRE VE3WZW.NET
+ ANDRE VE3WZW.NET 
 
 VE3WZW Social Links:   www.linktr.ee/VE3WZW
 
