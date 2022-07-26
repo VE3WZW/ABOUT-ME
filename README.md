@@ -25,7 +25,7 @@ www.VA3WZW.com </br>
 Details ABOUT ME
 https://www.ve3sp.com/p/about-me.html
 
-ACCOMPLISHMENTS ::   (PAID)
+ACCOMPLISHMENTS ::
 https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
 
 
