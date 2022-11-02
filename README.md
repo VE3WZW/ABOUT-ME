@@ -12,7 +12,7 @@ The collection of post at the website / blog contains descriptions of some of th
 
 VE3WZW Social Links:   www.linktr.ee/VE3WZW
 
-VE3WZW on QRZ:  https://www.ve3wzw.net/p/ve3wzw-on-qrz.html
+VE3WZW on QRZ:  https://www.ve3wzw.blogspot.com/p/ve3wzw-on-qrz.html
 
 
 www.VE3WZW.Net </br>
@@ -23,9 +23,9 @@ www.VA3WZW.com </br>
 
 
 Details ABOUT ME
-https://www.ve3sp.com/p/about-me.html
+https://www.ve3sp.blogspot.com/p/about-me.html
 
 ACCOMPLISHMENTS ::
-https://www.ve3sp.com/p/accomplishments-in-amateur-ham-radio.html
+https://www.ve3sp.blogspot.com/p/accomplishments-in-amateur-ham-radio.html
 
 
