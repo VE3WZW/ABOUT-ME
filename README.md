@@ -8,7 +8,7 @@ The collection of post at the website / blog contains descriptions of some of th
 
 
 
- ANDRE VE3WZW.NET 
+ ANDRE VE3WZW.NET 
 
 VE3WZW Social Links:   www.linktr.ee/VE3WZW
 
@@ -28,4 +28,8 @@ https://ve3sp.blogspot.com/p/about-me.html
 ACCOMPLISHMENTS ::
 https://ve3sp.blogspot.com/p/accomplishments-in-amateur-ham-radio.html
 
+Development: 
+Amateur Radio Elmer (Mentor) Project
+https://hamradioelmer.blogspot.com
 
+.
